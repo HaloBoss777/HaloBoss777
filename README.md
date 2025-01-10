@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @HaloBoss777
-- 👀 I’m interested in Games, Coding, anime, ens.
+- 👀 I’m interested in Games, Coding, ens.
 - 🌱 I’m currently learning Information Technologie
 
 <!---
